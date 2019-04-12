@@ -2,4 +2,4 @@
 Meet Github.
 
 Hi there,
-I wish to found some really good stuffs here^ ^.
+I wish to find some really good stuffs here^ ^.
